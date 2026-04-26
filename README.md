@@ -23,6 +23,7 @@
 
 ### 📬 Связь:
 - 💬 Telegram: [@dauuubi](https://t.me/dauuubi)
+- ✉️ Mail: [aabajdullin@list.ru]
 - 🎓 GitHub: [github.com/AbaydullinAA](https://github.com/AbaydullinAA)
 
 ---
