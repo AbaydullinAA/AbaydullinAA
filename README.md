@@ -29,5 +29,5 @@
 ---
 
 <p align="center">
-  <em>«Не все те, кто странствуют — потеряны» © J.R.R. Tolkien</em>
+  <em>«I don’t get lucky, I make my own luck» © Harvey Spectre</em>
 </p>
