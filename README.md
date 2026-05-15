@@ -24,7 +24,7 @@
 ### 📬 Связь:
 - 💬 Telegram: [@dauuubi](https://t.me/dauuubi)
 - ✉️ Mail: aabajdullin@list.ru
-- 📨 Vk: (https://vk.com/mbdtfmod)
+- 📨 Vk: https://vk.com/mbdtfmod
 
 ---
 
